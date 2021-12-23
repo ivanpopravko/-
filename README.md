@@ -34,12 +34,12 @@
 ![n5pa61dimckxtapegw0u4dax53uo63yr](https://user-images.githubusercontent.com/94644241/147195508-7344cc6b-f576-4b32-8923-b75096a4315a.jpg)
 ![q4vna3th3ofu](https://user-images.githubusercontent.com/94644241/147195782-e23f2f02-d74d-4cb2-93f2-ee162c57fc72.jpg)
 # Достижения
-### Участвовал в uchi://hack
+## Участвовал в uchi://hack
 ![image](https://user-images.githubusercontent.com/94644241/147198290-334bd350-cb91-4425-8687-814b1512bfe1.png)
 ![_HvRC4KnOI0](https://user-images.githubusercontent.com/94644241/147198475-3ebed61b-ba6f-42e7-a1dd-97d357a0b17d.jpg)
-Принял участие во всероссийском тестировании по "великой отечественной войне" 
+## Принял участие во всероссийском тестировании по "великой отечественной войне" 
 ![image](https://user-images.githubusercontent.com/94644241/147199122-c22b1752-869d-4b97-8a30-a59153315247.png)
-### Проходил повышение курсов квалификации на "ИНТУИТ"
+## Проходил повышение курсов квалификации на "ИНТУИТ"
 ![image](https://user-images.githubusercontent.com/94644241/147199676-4e298067-9a70-4b36-afb4-3781167213f2.png)
 
 ![image](https://user-images.githubusercontent.com/94644241/147199819-32461ae9-934c-4e6b-98ed-29a4b7f4d047.png)
